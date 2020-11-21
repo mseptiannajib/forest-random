@@ -1,2 +1,0 @@
-# forest-random
-tugas uas
